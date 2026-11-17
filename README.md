@@ -1,0 +1,1 @@
+# stroke_guide_xmas
